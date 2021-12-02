@@ -56,7 +56,7 @@ __Full-time Volunteer Representative__, The Church of Jesus Christ of Latter-day
 -	Adapted to a new environment and communicated daily with many people using exceptional communication skills
 -	Created multiple lesson plans every day that were tailored to the needs of those who were taught
 -	Trained new missionaries on proper teaching techniques and helped them adapt to their new surroundings
--	Supervised larger groups of missionaries and consistently assessed their well-beings
+-	Supervised large groups of missionaries and consistently assessed their well-being
 
 
 `October 2019 - December 2019`
